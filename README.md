@@ -1,1 +1,1 @@
-
+A ideia de “Guerra Híbrida”, conforme definida pelo Tenente-Coronel Frank G. Hoffman, do Corpo de Fuzileiros Navais dos Estados Unidos da América, em sua monografia intitulada “Conflict in the 21st Century: the rise of Hybrid Wars”, elaborada em 2007. Nesse trabalho, Hoffman menciona que a Guerra Híbrida incorpora uma gama de diferentes modos de guerra, incluindo capacidades convencionais, táticas e formações irregulares, atos terroristas com violência indiscriminada e coerção, e desordem criminal (HOFFMAN, 2017).
