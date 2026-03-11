@@ -1,3 +1,6 @@
+## 📌 Cyborg Loop/Feedback Diagram
+<img src="https://raw.githubusercontent.com/tventurazz/HybridWarfare/refs/heads/main/cyborg-diagram.png" width="800">
+
 # Neuromodulação Eletromagnética Remota e Implicações Estratégicas em Guerra Híbrida e Guerra Cognitiva
 
 ---
