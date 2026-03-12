@@ -12,6 +12,12 @@
 
 6) Biointeligência e Neuromoduladores como sistema adaptativo com realimentação;
 
+7) Biopolítica/Biopoder (Foucault)
+
+8) Supremacia Informacional (information superiority/information dominance)
+
+9) Assimetria Informacional 
+
 
 Alvos:
 
